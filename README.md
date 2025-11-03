@@ -48,7 +48,6 @@ This is the real winner. Thirty percent off T1 services (excluding WEE plans) fo
 
 Both codes expire October 20, 2025. They don't stack with other promotions, they don't apply to existing services, and special deals are excluded. Standard promotional fine print.
 
-![DMIT Hong Kong High-Bandwidth VPS Options](image/52623347791897.webp)
 
 ## What You're Actually Getting: The Network Breakdown
 
